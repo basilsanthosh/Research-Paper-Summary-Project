@@ -1,0 +1,1 @@
+this file is a project on summary prompted by AI reffering from a research paper so the content of the research might be invalid or wrong but this is only to study the ai output generation and variations 
